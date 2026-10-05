@@ -90,8 +90,8 @@ I am looking for opportunities where I can:
 ## Contact
 
 - GitHub: https://github.com/guermouchkenza-ui
-- Email: your.email@example.com
-- LinkedIn: your-linkedin-profile
+- Email: guermouch.kenza@gmail.com
+- LinkedIn: www.linkedin.com/in/kenza-g-ab4b38237
 
 ---
 
